@@ -1,1 +1,1 @@
-https://github.com/cactusvpakete/zakrivayuschiy-teg-f
+https://github.com/cactusvpakete/zakrivayuschiy-teg-ad
